@@ -1,2 +1,1 @@
-# rickymutsvairo.github.io
-resume
+
